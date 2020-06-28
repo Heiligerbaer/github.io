@@ -7,4 +7,7 @@ Die Geschichten handeln von Pitje Puck, dem stets gut gelaunten Briefträger des
 
 > Eene, meene, miste,
 > es rappelt in der Kiste.
+> Eine, meine, meck,
+> und du bist weg.
+
 
