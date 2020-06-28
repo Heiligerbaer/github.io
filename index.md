@@ -5,5 +5,7 @@ Die Geschichten handeln von Pitje Puck, dem stets gut gelaunten Briefträger des
 * Schlagfertig
 * Hilfsbereit
 
-> Eine, meine, miste,
+> Eene, meene, miste,
 > es rappelt in der Kiste.
+> Enne, meene, meck,
+> und du bist weg.
