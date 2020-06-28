@@ -4,3 +4,6 @@ Die Geschichten handeln von Pitje Puck, dem stets gut gelaunten Briefträger des
 * Witzig
 * Schlagfertig
 * Hilfsbereit
+
+> Eine, meine, miste,
+> es rappelt in der Kiste.
